@@ -9,7 +9,7 @@ You can click the Preview link to take a look at your changes.
 Connect with me
 [<img
   align="left"
-  alt="Sudhanshu Shrivastava | YouTube"
+  alt="https://www.youtube.com/channel/UCupgffpXnZUL9IYk-iFlD1Q"
   width="30px"
   src=
   "https://image.flaticon.com/icons/png/512/1384/1384060.png"
