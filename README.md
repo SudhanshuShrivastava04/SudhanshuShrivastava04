@@ -1,4 +1,4 @@
-![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/uOa1bpLskYgrwGbllhSu2SDj_Mig8SXJQCLcBGAsYHQ/s1600/2000_600px.gif)
+![MasterHead](https://www.canva.com/design/DAFer3ZuhWM/yhpDwyAHPUOmm0S2VwwuUQ/edit?utm_content=DAFer3ZuhWM&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 <h1 align="center">Hi 👋, I'm Sudhanshu Shrivastava</h1>
 <h3 align="center">Learner</h3>
