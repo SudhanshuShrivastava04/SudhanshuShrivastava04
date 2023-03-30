@@ -1,7 +1,7 @@
 
 
 # 💫 About Me:
-Self-taught Programmer , Work as a web developer 
+Self-taught Programmer , Love to Work as a web developer 
 
 
 ## 🌐 Socials:
